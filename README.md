@@ -1,8 +1,6 @@
-# MCA-S1-PYTHON
-iam sagar 
-gcdjksdghkvch
-h cjvld
-  lcv l'
-  dj vcd
-  v dlbvh cd
-   l
+Sagar K
+ Python daaa
+ java daaa
+  html daaa
+  ellaam simple daaa
+  mass daaa
